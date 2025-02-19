@@ -1,1 +1,0 @@
-# SimMasrik.github.io
